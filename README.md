@@ -1,4 +1,4 @@
-# [THAISERENAUX] <img src="[https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Hello_Big.gif](https://i.gifer.com/4e.gif)" width="100px">
+# [THAISERENAUX] <img src="[[https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Hello_Big.gif](https://i.gifer.com/4e.gif)](https://i.gifer.com/4e.gif)" width="100px">
 
 Eu sou <strong>Thaise Renaux</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
