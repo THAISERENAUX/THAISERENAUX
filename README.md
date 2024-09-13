@@ -1,4 +1,4 @@
-# [THAISERENAUX] <img src="[https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Hello_Big.gif](https://i.gifer.com/4e.gif)](https://i.gifer.com/4e.gif)](https://i.gifer.com/4e.gif)](https://gifer.com/4e)" width="50px">
+# [THAISERENAUX] <img src="[[https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Hello_Big.gif](https://i.gifer.com/4e.gif)](https://i.gifer.com/4e.gif)](https://i.gifer.com/4e.gif)](https://gifer.com/4e)](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F818177457293640972%2F&psig=AOvVaw2NgaEyb0Hy0yEYs80e5K-l&ust=1726321371496000&source=images&cd=vfe&opi=89978449&ved=2ahUKEwjHu5myhsCIAxXAJrkGHUgaFNwQjRx6BAgAEBU)" width="50px">
 
 Eu sou <strong>Thaise Renaux</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
